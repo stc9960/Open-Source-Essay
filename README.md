@@ -14,6 +14,7 @@ This is an understandable argument he is making, but he is approaching the probl
 > They are the ones who give hobbyists a bad name, and should be kicked out of any club meeting they show up at (reffering to resellers of appended software). I would appreciate letters from any one who wants to pay up, or has a suggestion or comment. Nothing would please me more than being able to hire ten programmers and deluge the hobby market with good software. 
 >
 The most aggravating part to many hobbyists was Bill Gates' high horse that he was condescendingly speaking from. Basically demeaning the club and bashing hobbyists as a whole. Also the fact that he tried to tell the Homebrew Computer Club to ban certain resellers from their meeting like he was the head of the club rubbed people the wrong way. I chose to write about this topic because I find Bill Gates' attitude and soapbox he stands on appauling. He acts almost like a child who doesnt get his way.
+An Open Letter to Hobbyists:
 
 ![An Open Letter to Hobbyists:](https://user-images.githubusercontent.com/89433067/135674990-b9425b5f-3eb5-4d78-8879-1ac44160d6e8.png)
 

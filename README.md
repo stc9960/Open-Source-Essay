@@ -15,6 +15,6 @@ Bill later goes on to explain his anger in even more detal by stating:**
 >
 **The most aggravating part to many hobbyists was Bill Gates' high horse that he was condescendingly speaking from. Basically demeaning the club and bashing hobbyists as a whole. Also the fact that he tried to tell the Homebrew Computer Club to ban certain resellers from their meeting like he was the head of the club rubbed people the wrong way. I chose to write about this topic because I find Bill Gates' attitude and soapbox he stands on appauling. He acts almost like a child who doesnt get his way.**
 
-An Open Letter to Hobbyists:
+** An Open Letter to Hobbyists: **
 ![An Open Letter to Hobbyists:](https://user-images.githubusercontent.com/89433067/135674990-b9425b5f-3eb5-4d78-8879-1ac44160d6e8.png)
 
